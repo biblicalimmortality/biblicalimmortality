@@ -1,5 +1,5 @@
-<p align="center" dir="auto"><img src="https://komarev.com/ghpvc/?username=biblicalimmortality&amp;color=green&amp;style=plastic&amp;label=angels" style="max-width: 100%;"></a>
-<p align="center" dir="auto"> <em> oh , the dashboard melted but we still have the radio! </em>
+<p align="center" dir="auto"><img src="https://komarev.com/ghpvc/?username=biblicalimmortality&amp;color=yellow&amp;style=plastic&amp;label=angels" style="max-width: 100%;"></a>
+<p align="center" dir="auto"><img src="https://64.media.tumblr.com/64c3fbb90eac459ee8f7caa61c1e6071/49e04e68c10a53a0-5b/s250x400/9fbee7ff027520b15e78607a91333e8f5ba6f4ae.gifv"</a>
 </p>
 </p>
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/Wz8cXNPK/blur-edges.png" style="max-width: 100%;"></a>
