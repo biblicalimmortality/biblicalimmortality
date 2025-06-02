@@ -11,4 +11,4 @@
 <p align="center" dir="auto">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=qutb93yfxidurhu5ywbevtlzh&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffdc5c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)"></a>
 </p>
-<p align="center" dir="auto"> <img src="https://64.media.tumblr.com/656492688e3a7dad4f1082b33f2d3912/1a17320c2c4d7d13-c1/s250x400/2259799fb216560561a3bb149cca788eb9d783dd.pnj"> </p> 
+<p align="center" dir="auto"> <img src="https://64.media.tumblr.com/656492688e3a7dad4f1082b33f2d3912/1a17320c2c4d7d13-c1/s250x400/2259799fb216560561a3bb149cca788eb9d783dd.pnj"> <img src="https://i.postimg.cc/QxH5ZCHX/oie-oie-overlay.gif"> </p> 
