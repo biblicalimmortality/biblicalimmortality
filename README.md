@@ -7,7 +7,7 @@
 <p align="center" dir="auto"> ꒰୨୧◞ ࣪ DNC. C+H r ok <br/>
 <ins>w2i</ins>, im usually afk or offtab <br/>
 </p>
-<p align="center" dir="auto"><a href="https://angelicsbible.atabook.org/" rel="nofollow">atabook</a>&nbsp;</a>< send a hello</p>
+<p align="center" dir="auto"><a href="https://angelicbusiness.atabook.org/" rel="nofollow">atabook</a>&nbsp;</a>< send a hello</p>
 <p align="center" dir="auto">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=qutb93yfxidurhu5ywbevtlzh&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffdc5c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)"></a>
 </p>
